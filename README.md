@@ -1,0 +1,1 @@
+- ChE, with hobbies in EE, ME, CS; Maker, Geek, and Nerd.
